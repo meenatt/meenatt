@@ -15,7 +15,7 @@
   
 - 📫 You can reach me at **aminatbalogun00@gmail.com**
 
-- 📄 Know about my experiences [here](https://drive.google.com/file/d/1nnQ8BHulaZe91-m8xKWBAQFeglReVH4o/view?usp=drive_link)
+- 📄 Know about my experiences [here](https://drive.google.com/file/d/1cC_M8rNzPDklf0UWuvcBZk_CbA9yKjku/view?usp=sharing)
 
 - ⚡ Fun fact **I am an aspiring rich woman 😚**
 
